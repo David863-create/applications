@@ -1,2 +1,2 @@
 # applications
-![2](https://user-images.githubusercontent.com/wp5574154-minecraft-wither-skeleton-wallpapers (copy).png)
+![2](https://user-images.githubusercontent.com/home/olamide/Downloads/uwp3149255(1).jpeg)
